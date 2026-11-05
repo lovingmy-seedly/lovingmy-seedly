@@ -1,1 +1,2 @@
-[nose.png](https://cdn.discordapp.com/attachments/1372388335494103080/1567768563316424786/284_sin_titulo_20261104230948.png?ex=6aed61c1&is=6aec1041&hm=9d1ad066020595a83998e517ea6951c7855975339887ce571401963f8773990d&)
+![284 sin título_20261104230948.png](https://github.com/user-attachments/assets/5fdfe79e-f4be-4fe9-a5b0-bbae633c52ad)
+
